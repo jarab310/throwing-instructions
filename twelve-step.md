@@ -30,7 +30,7 @@
 
 7. Opening:
 
-  Take your thumbs and pull out from the center of your piece and pull up and out. As always add water when needed. Stop once you have pulled as much as you want.
+  Take your thumbs and pull out from the center of your piece and pull up and out. If you want to pull more, take your non-dominant hand and pull while keeping your dominant outside your non-domninant.As always add water when needed. Stop once you have pulled as much as you want.
 
 8. Finishing up:
 
